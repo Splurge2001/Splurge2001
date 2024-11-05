@@ -4,7 +4,7 @@
 
 - 📫 You can reach me at: hang-wu23@mails.tsinghua.edu.cn  OR  heng.wu@RWTH-aachen.de
 
-- ⚡ Fun fact: I want to be a guitarist in a band in the future when I finally make my billion. 💵💵💵💵💵💵💵💵
+- ⚡ Fun fact: I want to be a guitarist in a band when I finally make my billion in the future. 💵💵💵💵💵💵💵💵
 
 <!---
 Splurge2001/Splurge2001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
